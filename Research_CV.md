@@ -2,7 +2,7 @@
 
 **Independent AI Researcher \| Adaptive Decision Systems \| Causal Learning \| Multiagent Reliability**
 
-Lagos, Nigeria
+Founder and Research Lead, Haldane Technologies Inc. (United States)
 [Email](mailto:timilehinolapade40@gmail.com) \| [GitHub](https://github.com/timi-le) \| [LinkedIn](https://www.linkedin.com/in/taolapade) \| [ORCID](https://orcid.org/0009-0001-4211-3105) \| [Google Scholar](https://scholar.google.com/citations?user=llOjrusAAAAJ) \| [ResearchGate](https://www.researchgate.net/publication/413861316_Agentic_Causal_Macro_Intelligence_A_Mixture-of-Experts_Framework_for_Regime-Conditional_Systematic_Trading)
 
 *Research curriculum vitae \| 31 October 2026*
